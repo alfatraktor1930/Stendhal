@@ -214,4 +214,4 @@ Stendhal is available as a full free version, with all features and updates incl
 Get ready for a thrilling gaming experience! Download Stendhal free today and embark on your adventure!
 
 ---
-**Last updated:** 2026-09-24 22:55:31 UTC
+**Last updated:** 2026-09-25 01:06:26 UTC
